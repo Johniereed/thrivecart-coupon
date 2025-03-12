@@ -6,7 +6,7 @@ You're in the right place! Now sell your digital products, memberships, and subs
 
 In addition to that, I will also show how you can get a lifetime account with one-time payment instead of costly monthly fees.
 
-So, let’s not waste time grab your ThriveCart coupons now!
+So, let’s not waste time, grab your ThriveCart coupons now!
 
 ## ThriveCart Coupon Code | Get 50% Off
 
@@ -37,7 +37,7 @@ With this ThriveCart deal, you get detailed business analytics, optimized checko
 
 ## Get 40% Off ThriveCart Promo Code
 
-Claim a [40% discount](https://thrivecart.com/) on the platform using this exclusive ThriveCart promo code and save up to $400 on your subscription.
+Claim a [40% discount](https://bloggervoice--checkout.thrivecart.com/thrivecart-standard-account/) on the platform using this exclusive ThriveCart promo code and save up to $400 on your subscription.
 
 This is a limited-time offer, click the button below before it goes!
 
@@ -45,7 +45,7 @@ This is a limited-time offer, click the button below before it goes!
 
 ## ThriveCart Discount Code | Get 20% Off
 
-Get [20% off](https://thrivecart.com/) on your annual subscription on the platform and save up to $100 using this ThriveCart discount code.
+Get [20% off](https://bloggervoice--checkout.thrivecart.com/thrivecart-standard-account/) on your annual subscription on the platform and save up to $100 using this ThriveCart discount code.
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcklCRf3ajW6a82gn0k4aOx4moG70XYPps4HQyMdFy9lSocutCoYGAKMXBCT8YpF_4FjCP13jslrw4PJnjQAqmm6hMAwSi_GQKrxmMYY4-5U7C8_ms4b1TiaG9gex7JxeRcHBl0lQ?key=ZmiHUaxDUHxyJoVYYtIsJirv)](https://bloggervoice--checkout.thrivecart.com/thrivecart-standard-account/)
 
